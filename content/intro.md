@@ -1,4 +1,4 @@
-## Building the Foundation for <span>Digital Excellence</span>
+## Building the Foundation for<br><span>Digital Excellence</span>
 
 ### We are the Infrastructure Services department, powering the technology backbone that enables innovation across the organization.
 
